@@ -32,3 +32,5 @@ Living alone for the first time in your life is a daunting process in and of its
 Need help figuring out how to fix your clogged sink? Or, need honest opinions on a campus job? Pop the question on the website and Gtech Samaritans will answer them in no time. Or, use the Search bars to find existing, relevant answers. You can even post advice threads, college hacks, share experiences and whatever you feel would help make students' lives easier. 
 Run for the students, by the students, 
 TECH-OUR-HELP is here to cater to any question you might have.
+
+https://youtu.be/hTEqF4RCqxw
